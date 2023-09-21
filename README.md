@@ -10,4 +10,6 @@ Meu nome é endryw raphael
 
 endryw.santos@escola.pr.gov.br
 
-![descrição do GIF](link GIF do Tenor)
+raphaelendryw@gmail.com
+
+![]()https://media.tenor.com/vPjVz9HP_5AAAAAC/bellingham.gif
