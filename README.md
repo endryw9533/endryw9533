@@ -10,6 +10,6 @@ Meu nome é endryw raphael
 
 endryw.santos@escola.pr.gov.br
 
-raphaelendryw@gmail.com
+endryw.santos@escola.pr.gov.br
 
 ![](https://media.tenor.com/vPjVz9HP_5AAAAAC/bellingham.gif)
